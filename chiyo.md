@@ -1,4 +1,4 @@
-# [](https://chiyo-sampo.net/)
+# [ちよさんぽ](https://chiyo-sampo.net/)
 
 ## 【N1文法】
 
