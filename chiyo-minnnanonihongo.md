@@ -102,5 +102,7 @@
 
 [みんなの日本語 初級 第50課【教案】](https://chiyo-sampo.net/minnnanonihongo-lesson50/)
 
+[「みんなの日本語 初級」1〜50課の教案まとめ【教え方と使用教材】](https://chiyo-sampo.net/howtoteach-minnnanohihonngo/)
+
 
 
